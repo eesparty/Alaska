@@ -15,7 +15,7 @@ Here is the planned Itinerary for Alaska:
 - Travel to Ship  
 **July 12**  
 - Ship  
-**July 13  
+**July 13**  
 - Ship  
 **July 14**   
 - Kroschel Wildlife Refuge (6.25 Hr)  
