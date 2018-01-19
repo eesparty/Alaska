@@ -1,7 +1,7 @@
 # Alaska Planned Itinerary
 
 ### **July 7**
-- Arrive
+- Arrive at 11:39 PM  
 
 ### **July 8**
 - Morning Riverboat Discovery Cruise (Included) 8:15 AM - 1:00 PM  
@@ -29,11 +29,15 @@
 - [Kroschel Wildlife Refuge Excursion](https://book.princess.com/excursions/exDetails.page?tourCode=SGY-370&portid=SGY&portdate=07142018) SGY-370 7:30 AM - 1:45 PM  
 - [Adventure Park and Ziplines](https://book.princess.com/excursions/exDetails.page?tourCode=SGY-400&portid=SGY&portdate=07142018) SGY-400 2:30 PM - 6:00 PM (Jason Only)
 
-### **July 15 - Juneau**
+### **July 15 - Juneau In Port 6:30 AM - 4:00 PM**
 - [Mendenhall Glacier and Whale Quest](https://book.princess.com/excursions/exDetails.page?tourCode=JNU-630&portid=JNU&portdate=07152018)  JNU-630 7:45 AM - 1:00 PM
 
-### **July 16 - Ketchikan**
+### **July 16 - Ketchikan In Port 10:00 AM - 6:00 PM**
 - [Alaskan Rainforest Family Adventure](https://book.princess.com/excursions/exDetails.page?tourCode=KTN-515&portid=KTN&portdate=07162018) KTN-515 11:30 AM - 2:30 PM
 
 ### **July 17**
 - Ship
+
+### **July 18**
+- Arrive in Vancouver 7:30 AM  
+- Plane Departure at 12:00 PM  
