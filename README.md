@@ -6,7 +6,7 @@
 
 ### **July 8**
 - Morning Riverboat Discovery Cruise (Included) 8:15 AM - 1:00 PM  
-- Travel to Denali
+- Travel to Denali - 3 Hr Motorcoach  
 - [Husky Homestead Excursion](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-DNP-310&portid=DNP&portdate=07082018) 8AK-DNP-310 6:50 PM - 9:20 PM
 
 ### **July 9**
@@ -14,11 +14,11 @@
 - Natural History Tour (Included in Package) 1:00 PM - 7:00 PM
 
 ### **July 10**
-- Morning Travel to McKinley
+- Morning Travel to McKinley - 2.25 Hr Motorcoach  
 - [Byer Lake Nature Walk](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-TKA-420&portid=TKA&portdate=07102018) 8AK-TKA-420 4:45 PM - 7:45 PM   
 
 ### **July 11**
-- Travel to Ship
+- Travel to Ship - Train Depart 1:30 PM Arrive 6:30 PM (Lodge to Rail Depot - 1 Hr)   
 
 ### **July 12**
 - Ship
