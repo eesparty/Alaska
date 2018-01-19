@@ -47,4 +47,4 @@ Could Add:
 
 ### **July 18**
 - Arrive in Vancouver 7:30 AM  
-- Plane Departure at 12:00 PM  
+
