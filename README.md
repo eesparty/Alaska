@@ -15,7 +15,7 @@
 
 ### **July 10**
 - Morning Travel to McKinley
-- Byer Lake Nature Walk
+- [Byer Lake Nature Walk](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-TKA-420&portid=TKA&portdate=07102018)  
 
 ### **July 11**
 - Travel to Ship
