@@ -27,7 +27,7 @@
 - Ship
 
 ### **July 14 - Skagway**
-- Kroschel Wildlife Refuge Excursion
+- [Kroschel Wildlife Refuge Excursion](https://book.princess.com/excursions/exDetails.page?tourCode=SGY-370&portid=SGY&portdate=07142018) SGY-370 7:30 AM - 1:45 PM  
 - Zipline? (Jason Only)
 
 ### **July 15 - Juneau**
