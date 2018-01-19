@@ -25,9 +25,9 @@
 ### **July 13**
 - Ship
 
-### **July 14 - Skagway**
+### **July 14 - Skagway In Port 7:00 AM - 8:30 PM**
 - [Kroschel Wildlife Refuge Excursion](https://book.princess.com/excursions/exDetails.page?tourCode=SGY-370&portid=SGY&portdate=07142018) SGY-370 7:30 AM - 1:45 PM  
-- Zipline? (Jason Only)
+- [Adventure Park and Ziplines](https://book.princess.com/excursions/exDetails.page?tourCode=SGY-400&portid=SGY&portdate=07142018) SGY-400 2:30 PM - 6:00 PM (Jason Only)
 
 ### **July 15 - Juneau**
 - [Mendenhall Glacier and Whale Quest](https://book.princess.com/excursions/exDetails.page?tourCode=JNU-630&portid=JNU&portdate=07152018)  JNU-630 7:45 AM - 1:00 PM
