@@ -1,7 +1,8 @@
 # Alaska Planned Itinerary
 
 ### **July 7**
-- Arrive at 11:39 PM  
+- Depart Detroit 3:45 PM
+- Arrive Fairbanks  11:39 PM  
 
 ### **July 8**
 - Morning Riverboat Discovery Cruise (Included) 8:15 AM - 1:00 PM  
