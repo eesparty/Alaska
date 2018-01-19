@@ -11,7 +11,7 @@
 - [Husky Homestead Excursion](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-DNP-310&portid=DNP&portdate=07082018) 8AK-DNP-310 6:50 PM - 9:20 PM
 
 ### **July 9**
-- [Black Diamond ATV Adventure](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-DNP-500&portid=DNP&portdate=07092018) 8AK-DNP-500 7:15 AM - 10:45 AM (Jason Only)  
+- [Black Diamond ATV Adventure](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-DNP-500&portid=DNP&portdate=07092018) 8AK-DNP-500 7:15 AM - 10:45 AM  
 - Natural History Tour (Included in Package) 1:00 PM - 7:00 PM
 
 ### **July 10**
