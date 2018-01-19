@@ -1,4 +1,5 @@
 # Alaska Planned Itinerary
+### Dave and Sue Shomsky
 
 ### **July 7**
 - Depart Detroit 3:45 PM
