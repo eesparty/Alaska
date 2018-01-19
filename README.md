@@ -5,7 +5,7 @@
 
 ### **July 8**
 - Morning Travel to Denali
-- [Husky Homestead Excursion](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-DNP-310&portid=DNP&portdate=07082018)
+- [Husky Homestead Excursion](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-DNP-310&portid=DNP&portdate=07082018) 8AK-DNP-310 6:50 PM - 9:20 PM
 
 ### **July 9**
 - ATV or Zipline (Jason Only)  
