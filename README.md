@@ -4,7 +4,8 @@
 - Arrive
 
 ### **July 8**
-- Morning Travel to Denali
+- Morning Riverboat Discovery Cruise (Included) 8:15 AM - 1:00 PM  
+- Travel to Denali
 - [Husky Homestead Excursion](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-DNP-310&portid=DNP&portdate=07082018) 8AK-DNP-310 6:50 PM - 9:20 PM
 
 ### **July 9**
