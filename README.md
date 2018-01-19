@@ -9,7 +9,7 @@
 
 ### **July 9**
 - ATV or Zipline (Jason Only)  
-- [Black Diamond ATV Adventure](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-DNP-500&portid=DNP&portdate=07092018) 
+- [Black Diamond ATV Adventure](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-DNP-500&portid=DNP&portdate=07092018) 8AK-DNP-500 7:15 AM - 10:45 AM 
 - [Denali Park Zipline Adventure](https://book.princess.com/excursions/ldxDetails.page?tourCode=8AK-DNP-400&portid=DNP&portdate=07092018)  
 - Natural History Tour (Included in Package) 1:00 PM - 7:00 PM
 
