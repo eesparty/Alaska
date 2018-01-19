@@ -34,7 +34,12 @@
 - [Mendenhall Glacier and Whale Quest](https://book.princess.com/excursions/exDetails.page?tourCode=JNU-630&portid=JNU&portdate=07152018)  JNU-630 7:45 AM - 1:00 PM
 
 ### **July 16 - Ketchikan 10:00 AM - 6:00 PM**
-- [Alaskan Rainforest Family Adventure](https://book.princess.com/excursions/exDetails.page?tourCode=KTN-515&portid=KTN&portdate=07162018) KTN-515 11:30 AM - 2:30 PM
+- [Alaskan Rainforest Family Adventure](https://book.princess.com/excursions/exDetails.page?tourCode=KTN-515&portid=KTN&portdate=07162018) KTN-515 11:30 AM - 2:30 PM  
+
+Could Add:  
+- [Town and Harbor Duck Tour](https://book.princess.com/excursions/exDetails.page?tourCode=KTN-660&portid=KTN&portdate=07162018) KTN-660 4:00 PM - 5:30 PM  
+- [Historical Ketchikan & Creek Street Walking Tour](https://book.princess.com/excursions/exDetails.page?tourCode=KTN-380&portid=KTN&portdate=07162018) KTN-380 3:00 PM - 4:30 PM  
+- [Great American Lumberjack Show](https://book.princess.com/excursions/exDetails.page?tourCode=KTN-300&portid=KTN&portdate=07162018) KTN-300 2:45 PM - 4:15 PM  
 
 ### **July 17**
 - Ship
