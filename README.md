@@ -34,7 +34,7 @@
 - [Mendenhall Glacier and Whale Quest](https://book.princess.com/excursions/exDetails.page?tourCode=JNU-630&portid=JNU&portdate=07152018)  JNU-630 7:45 AM - 1:00 PM
 
 ### **July 16 - Ketchikan**
-- Alaskan Rainforest Family Adventure
+- [Alaskan Rainforest Family Adventure](https://book.princess.com/excursions/exDetails.page?tourCode=KTN-515&portid=KTN&portdate=07162018) KTN-515 11:30 AM - 2:30 PM
 
 ### **July 17**
 - Ship
