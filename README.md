@@ -31,7 +31,7 @@
 - Zipline? (Jason Only)
 
 ### **July 15 - Juneau**
-- Mendenhall Glacier and Whale Quest
+- [Mendenhall Glacier and Whale Quest](https://book.princess.com/excursions/exDetails.page?tourCode=JNU-630&portid=JNU&portdate=07152018)  JNU-630 7:45 AM - 1:00 PM
 
 ### **July 16 - Ketchikan**
 - Alaskan Rainforest Family Adventure
