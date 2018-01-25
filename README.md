@@ -36,7 +36,7 @@ Jason, Erica and Tyler
 - [Mendenhall Glacier and Whale Quest](https://book.princess.com/excursions/exDetails.page?tourCode=JNU-630&portid=JNU&portdate=07152018)  JNU-630 7:45 AM - 1:00 PM (_Jason, Erica, Tyler, Sue, Dave_)  
 
 ### **July 16 - Ketchikan 10:00 AM - 6:00 PM**
-- [Alaskan Rainforest Family Adventure](https://book.princess.com/excursions/exDetails.page?tourCode=KTN-515&portid=KTN&portdate=07162018) KTN-515 11:30 AM - 2:30 PM  (_Jason, Erica, Tyler_) (_TBD for Sue, Dave_)  
+- [Alaskan Rainforest Family Adventure](https://book.princess.com/excursions/exDetails.page?tourCode=KTN-515&portid=KTN&portdate=07162018) KTN-515 12:30 AM - 3:30 PM  (_Jason, Erica, Tyler_) (_TBD for Sue, Dave_)  
 
 Could Add:  
 - [Town and Harbor Duck Tour](https://book.princess.com/excursions/exDetails.page?tourCode=KTN-660&portid=KTN&portdate=07162018) KTN-660 4:00 PM - 5:30 PM  
